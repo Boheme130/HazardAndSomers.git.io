@@ -95,7 +95,7 @@
 
 ## Off Duty (番外一)
 ⭕️关键词：❤️恋爱；日常 <br>
-番外一些小短文，恋爱为主，探案为辅，分别是演唱会门票失踪案，情侣旅馆半夜婴儿哭声案，作家绑架案，以及六个Somers和Hazard生活中的小镜头，包括两个人为理肤泉洗面奶在超市争论，在俱乐部跳舞，睡前照顾女儿，搬新家见邻居，Somers喂女儿第一次吃西蓝花，Hazard买家具
+番外一些小短文，恋爱为主，探案为辅，分别是演唱会门票失踪案，[情侣旅馆半夜婴儿哭声案](https://boheme130.github.io/WhenTheRoadRises.git.io/)，作家绑架案，以及六个Somers和Hazard生活中的小镜头，包括两个人为理肤泉洗面奶在超市争论，在俱乐部跳舞，睡前照顾女儿，搬新家见邻居，Somers喂女儿第一次吃西蓝花，Hazard买家具
 
 <br>
 <br>
@@ -174,5 +174,5 @@ Hazard和Somers开始讨论婚姻问题，但是Hazard无法接受婚姻，向�
 
 ## Off Duty (番外二)
 ⭕️关键词：❤️恋爱；日常  <br>
-短篇合集，分别是Somers瞒着男友把自己拍卖出去；Hazard策划婴儿生日；两人共度感恩节；Hazard打扮成圣诞老人；情人节；Somers给Hazard策划生日；结婚蜜月
+短篇合集，分别是[Somers瞒着男友把自己拍卖出去](https://boheme130.github.io/SomersSold.git.io/)；Hazard策划婴儿生日；两人共度感恩节；Hazard打扮成圣诞老人；[情人节大戏](https://boheme130.github.io/ValentineSixBeats.git.io/)；Somers给Hazard策划生日；结婚蜜月
 
