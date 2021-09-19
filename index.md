@@ -118,7 +118,7 @@
 
 
 
-## Police Brutality (卷八)
+## [Police Brutality (卷八)](https://boheme130.github.io/PoliceBrutality.git.io/)
 ⭕️关键词：婚姻；新搭档；❤️爱的停滞期  <br>
 警察自家离奇死亡案：警局警察寻求Hazard保护，然而最终他还是离奇死在自己家中，看似自杀的场景背后却是多方势力的博弈。
 
