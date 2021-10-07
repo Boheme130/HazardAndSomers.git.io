@@ -176,3 +176,15 @@ Hazard和Somers开始讨论婚姻问题，但是Hazard无法接受婚姻，向�
 ⭕️关键词：❤️恋爱；日常  <br>
 短篇合集，分别是[Somers瞒着男友把自己拍卖出去](https://boheme130.github.io/SomersSold.git.io/)；Hazard策划婴儿生日；两人共度感恩节；Hazard打扮成圣诞老人；[情人节大戏](https://boheme130.github.io/ValentineSixBeats.git.io/)；Somers给Hazard策划生日；结婚蜜月
 
+
+<br>
+<br>
+<br>
+
+
+Relative Justice (卷十二)
+⭕️关键词：Hazard继子；家庭失职；❤️爱的新旅程 <br>
+无痕弑父案：一个男子被谋杀在他自家的宅院里。尸体的田野周围只有被害者一个人的脚印，凶手的脚印却离奇消失，这成为了一宗不可能犯罪。在调查的过程中，几个家庭的亲子关系慢慢浮出水面，虽然每家的情况不同，但相通的是父母的失责。
+
+Hazard和Somers度过了几乎完美的蜜月，两人刚回到家就发现家门口一个少年在等他们。少年自己是Hazard的儿子。Hazard简直不敢相信，他一没和女人做过，二没捐过精，怎么可能会人在家中坐，儿从天上来。两人当即做了DNA采集，Hazard第二天就送去检测。在Somers的提议下，少年暂时住进了Hazard家里。就这样在Hazard的反对中，Colt登堂入室住进了夫夫家里。这时一个报警传来。最终亲子鉴定的谜团解开，县级市迎来了新的主角Colt，他将作为Hazard的继子继续出场。
+
