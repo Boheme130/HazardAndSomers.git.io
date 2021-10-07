@@ -182,7 +182,7 @@ Hazard和Somers开始讨论婚姻问题，但是Hazard无法接受婚姻，向�
 <br>
 
 
-## Relative Justice (卷十二)
+## [Relative Justice (卷十二)](https://boheme130.github.io/RelativeJustive/)
 ⭕️关键词：Hazard继子；家庭失职；❤️爱的新旅程 <br>
 无痕弑父案：一个男子被谋杀在他自家的宅院里。尸体的田野周围只有被害者一个人的脚印，凶手的脚印却离奇消失，这成为了一宗不可能犯罪。在调查的过程中，几个家庭的亲子关系慢慢浮出水面，虽然每家的情况不同，但相通的是父母的失责。
 
