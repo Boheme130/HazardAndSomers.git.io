@@ -14,7 +14,6 @@
 
 
 ## Pretty Pretty Boys (卷一)
-![avatar](https://images.saatchiart.com/saatchi/924628/art/7829169/6897064-BIFGNUEO-7.jpg) <br>
 ⭕️关键词：重返故乡；敌人变搭档；❤️爱藏在心里 <br>
 新纳粹组织仇杀案：警探Hazard回到故乡小镇警局，却发现被安排的搭档是昔日欺凌他的校霸Somers。但还没来及安顿，两人就被卷入极端保守组织和LGBT群体的互害中，然而从中作梗的势力远不止这两个。
 
@@ -28,7 +27,6 @@
 
 
 ## Transposition (卷二)
-![avatar](https://a.1stdibscdn.com/a_11292/1549566306323/BULL_OF_WALL_STREET_48X60_PUBLISHED_master.jpg?width=768) <br>
 ⭕️关键词：角色扮演；别墅杀人；❤️爱的初告白 <br>
 风雪夜别墅杀人案：上一部结尾Hazard和Somers决定暂时放下历史，两人在感恩节前误入一座孤岛上的别墅，一群华尔街高管正在玩一场角色扮演杀人游戏，然而暴雨和暴雪将退路的木桥毁掉，然而游戏逐渐失控，高管一个接一个死亡，Hazard和Somers也在别墅中陷入危险。
 
@@ -42,7 +40,6 @@
 
 
 ## Paternity Case (卷三)
-![avatar](https://voltamagazine.files.wordpress.com/2020/10/volta.jpg?w=1200) <br>
 ⭕️关键词：权力斗争；父爱；❤️爱的回忆录 <br>
 豪宅家宴杀人案：Somers父亲在他的豪宅举办了一场家宴，然而宴会上突然停电枪声四起，Somers父亲身负重伤，死亡的还有郡县治安官儿子的女儿。整个小镇最有权势的几个人物都在宴会上，他们的存在使调查困难重重，同时Somers和Hazard也察觉到了警局内部的危险，而Hazard过往的档案也被当成了威胁的筹码。
 
@@ -72,7 +69,6 @@
 
 
 ## [Reasonable Doubt (卷五)](https://boheme130.github.io/ReasonDoubt.git.io/)
-![avatar](https://1.bp.blogspot.com/-KrEqXvffXos/YAyM3PX5a-I/AAAAAAAAA5g/lOC-PP8_pqIvfKhUYBT9Z92jGWL2iT7YQCLcBGAsYHQ/s1600/athii.jpeg) <br>
 ⭕️关键词：宗教；信仰冲突；❤️爱的热恋期 <br>
 基督复活杀人案：邪教基督组织首领暴毙家中，组织成员接二连三死亡，最终酿成了无比悲情的结局，即便Hazard, Somers两人极力扭转也无力回天。
 
